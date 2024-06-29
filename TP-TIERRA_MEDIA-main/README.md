@@ -1,1 +1,0 @@
-# TP-TIERRA_MEDIA
